@@ -26,16 +26,16 @@ Infinity is a difficult concept for the human mind to grasp. The game, however, 
 
 So, although the game simulates an infinite space, it is practically impossible to reproduce genuine infinity since it relies on a machine that eventually stops running and is constructed of finite materials.
 
-![](https://i.imgur.com/VcuEb5g.jpg)
+![](https://i.imgur.com/VcuEb5g.jpg)  
 *Raphael. School of Athens. 1511*
 
-![](https://i.imgur.com/XEByznd.jpg)
+![](https://i.imgur.com/XEByznd.jpg)  
 Panini, Giovanni Paolo. Ancient Rome. 1757
 
-![](https://i.imgur.com/nk1zvdg.jpg)
+![](https://i.imgur.com/nk1zvdg.jpg)  
 *Piranesi, Giovanni Batista. The Well. 1761*
 
-![](https://i.imgur.com/XIJG3EX.jpg)
+![](https://i.imgur.com/XIJG3EX.jpg)  
 *Boullee, Etienne Louise. Architectural Review. 1799*
 
 In an effort to arouse various emotions in the viewer, artists have always strived to push the limits of perspective. Repetition is the most popular strategy for comprehending 2D visual depictions of infinity or limitless perspectives. This has been proven historically in a range of forms and media.
